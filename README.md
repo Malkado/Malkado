@@ -1,8 +1,5 @@
 ## 😁 Opa amigos!
 
-<img align="right" width="400" height="400" src="https://firebasestorage.googleapis.com/v0/b/landingpageorigamid.appspot.com/o/%E2%80%94Pngtree%E2%80%94chibi%20boy%20with%20glasses_3782196.png?alt=media&token=fc253001-e6e6-41f1-b1ac-4cfd51df100d">
-
-
 
 
 
